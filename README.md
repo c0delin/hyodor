@@ -1,2 +1,0 @@
-# hyodor
-HYODOR Official Website
